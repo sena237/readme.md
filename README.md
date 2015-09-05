@@ -8,6 +8,6 @@ grasse à se MOOC j'ai pu découvrir un nouveau monde celui des developpeurs web
 
 Que de bonne chose je profit donc pour dire merci a tous les initiateurs et les animateurs de ce MOOC qui se veux innovateur.
 
-![Zozor](http://uploads.magiejacynthe.m.a.pic.centerblog.net/hgy8nqgx.gif" border="0"  alt="Image du Blog magiejacynthe.centerblog.net)
+![Zozor](http://uploads.siteduzero.com/files/420001_421000/420263.png)
 
 
